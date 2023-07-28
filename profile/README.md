@@ -1,3 +1,3 @@
 ## Exon, Inc.
 
-[exontech.ir](https://exontech.ir/)
+[Exontech](https://exontech.ir/)
